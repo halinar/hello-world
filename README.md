@@ -4,3 +4,5 @@ what ever that is
  i used this thing to learn git.
  the reason of why i learn this is because the sport ceremony of school is too boring.
  i think i got the wrong way.... shit/
+i  was warned by my teacher...
+awful
